@@ -152,6 +152,15 @@ URL: https://zh.moegirl.org/%E6%A3%AE%E4%B9%83%E4%BC%8A%E6%AF%94%E5%96%9C
 
 「シカ」意思是鹿，而「マル」意為「圓」或「良好發展」，在日文中常作為男孩名字的詞尾。與「山中」（山中井野的名字「いの」，意為公豬）和「秋道」（秋道丁次的名字「丁」「ちょう」，意為蝴蝶）一起組成了傳說中的「豬鹿蝶」組合，該組合也是源於日本傳統遊戲花札。
 
+NARUTO ガイ名言 URL:https://www.youtube.com/watch?v=uSnbbK8Dj3M
+```txt
+自分を信じない奴になんかに、努力する価値は無い!!!
+```
+
+"`SFX`" stands for "`Sound + Effects`." SFX's are onomatopoeia used in comics(连环漫画), such as manga and manwha. They attempt to give sound to 2D-drawn images by imitating real-life and imaginary sounds. These sounds are written in phoenetic(表示语音的；音标的；与发音近似的) alphabets - in Japanese manga, it's usually in Katakana and Hiragana.
+
+https://manga.tokyo/columns/otaku-basics/manga-sound-effects-the-basics-of-japanese-onomatopoeia/
+
 ## 犬夜叉
 
 犬夜叉：いぬやしゃ  yi nu ya xia
